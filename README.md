@@ -1,1 +1,0 @@
-# navinktsnake-ouput
